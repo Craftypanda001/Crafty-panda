@@ -1,10 +1,5 @@
 # Crafty-panda
 This is free triks to all
-
-My intro bro ok
-𝐇𝐢
-𝐁𝐨𝐭 𝐛𝐲   𝘾ᴙ𝗧𝗮𝗳𝘁𝘆.𝗣𝗮𝗻𝗱𝗮 𝐢𝐬 𝐀𝐋𝐈𝐕𝐄
-ʀᴇᴍᴇᴍʙᴇʀ ᴛʜᴇ ɴᴀᴍᴇ: 
  *City*  _karachi_
  *Work* _IT and Islamic University in karachi_ 
  *⢀⢀⢀⢀⢀⢀⢀⢀⢀⢀⣀⡀⢀⢀⢀⢀⢀⢀⢀⢀
